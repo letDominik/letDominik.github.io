@@ -1,3 +1,3 @@
 # letDominik.github.io
 
-**Psie Smaczki**
+**Psie Ciacha**
